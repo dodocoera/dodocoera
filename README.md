@@ -1,5 +1,3 @@
-### 怎么说？
+### 原神，启动!
 
-原神，启动！
-
-![原神，启动](https://act-webstatic.mihoyo.com/puzzle/hk4e/pz_Q9C83JdzSN/resource/puzzle/2024/03/12/25d9fa5f3848ca53381d10007963b07a_341421159113708091.mp4?x-oss-process=video/snapshot,t_1,f_jpg,m_fast)
+![原神，启动](https://act-webstatic.mihoyo.com/puzzle/hk4e/pz_K_ZByIfMVN/resource/puzzle/2024/04/23/d466955dabefedc6ecc7a2ffa0ac6141_6841073959267104816.mp4?x-oss-process=video/snapshot,t_1,f_jpg,m_fast)
